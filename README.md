@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @TroubleJin
-- 👀 I’m Love China
+- 👀 I Love China
